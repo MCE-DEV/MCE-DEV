@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MCE-DEV
+- 👀 I’m interested in roblox scripting ...
+- 💞️ I’m looking to help people by doig commistions
+- 📫 How to reach me: discord HMS#0711
